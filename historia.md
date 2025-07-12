@@ -61,7 +61,6 @@ Un impulso inexplicable lo guiaba a acercarse cada vez más.
 Cada paso lo acercaba más a una verdad sepultada, mientras el eco del grito seguía latiendo dentro de él. 
 Al fondo, donde la oscuridad era más densa cayó en un sueño profundo.
 
-
 ## Capítulo 06: Fragmentos de memoria
 Cada noche, los sueños se volvían más vívidos: tormentas, una promesa rota, un
 rostro que le suplicaba. Adam despertaba sudando, con el eco de un nombre en los
@@ -77,32 +76,15 @@ Guiado por símbolos similares a su marca, Adam llegó a una puerta de piedra en
 profundo del bosque. Al tocarla, esta tembló suavemente y comenzó a abrirse, 
 como si lo reconociera.
 
-## Capítulo 09: Más allá del umbral  
+## Capítulo 09: Más allá del umbral
 El mundo al otro lado desafiaba las leyes de la realidad. El cielo era de un  
 color imposible, y la gravedad cambiaba con cada paso. Figuras encapuchadas lo  
 esperaban. “Volviste”, dijo una voz. “Pero ya no sos el mismo”.
-
-Mientras se aclimataba e intentaba hacer pie, iba reconociendo poco a poco,  
-a través de visiones, quiénes eran aquellos robustos e imponentes encapuchados.  
-Una vez en situación, se dio cuenta de lo que estaba pasando: su presencia no  
-era azarosa, él era parte de un ciclo del que alguna vez intentó escapar.
-
-Las figuras lo rodearon sin hablar, pero sus pensamientos retumbaban en su mente.  
-No eran enemigos, ni aliados. Eran los guardianes de un equilibrio al que Adam  
-había traicionado en otra vida. Una vida que ahora recordaba solo en fragmentos.  
-Todo a su alrededor parecía flotar, incluso su culpa, suspendida en ese otro mundo.
-
-Sus ojos se adaptaron lentamente a la extraña luz, mientras una mezcla de temor y 
-determinación crecía en su pecho. Sabía que cruzar ese umbral lo había transformado,
-pero aún no comprendía cuánto ni en qué dirección.
-Las figuras avanzaron, susurrando secretos que parecían resonar en el aire mismo,
-prometiendo respuestas... o quizá un destino irreversible.
 
 Entonces, una de las figuras se adelantó y colocó una mano en su pecho. En ese instante, 
 toda resistencia se desmoronó. El flujo de memorias lo atravesó como un relámpago: pactos 
 sellados en silencio, traiciones antiguas, y un nombre susurrado por voces olvidadas. 
 Adam cayó de rodillas. Ya no era solo un viajero; era la chispa que podía romper —o cerrar— el ciclo.
-
 
 ## Capítulo 10: La decisión final
 Los recuerdos regresaron con violencia. El pacto, el sacrificio, la promesa
